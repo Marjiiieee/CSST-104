@@ -1,4 +1,4 @@
-***#Activities and Projects Compilation***
+# ***Activities and Projects Compilation***
 
 **Introduction**
 
